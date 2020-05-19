@@ -6,5 +6,7 @@ https://www.typography.com/blog/text-for-proofing-fonts
 
 
 Jonathan Hoefler
+
 Hoefler&Co.
+
 19 May 2020
